@@ -7,3 +7,4 @@ No dreams will come when I’ve dulled every sense,
 Its numbness will not linger there’s the catch.
 For in sedation’s fog, what life slips warms like pitch,
 Painful moments lost to the comfortable haze?
+And again I swallow pills, in isolation and call it living.”
