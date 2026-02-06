@@ -1,0 +1,1 @@
+Time can heal all wounds the same way termites can strengthen a house
