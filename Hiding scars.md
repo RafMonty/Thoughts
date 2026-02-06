@@ -1,0 +1,1 @@
+I know the blade will set things straightbut the mess and hiding the scarsis growing old.
