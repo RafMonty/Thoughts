@@ -1,4 +1,4 @@
-question.
+To sedate myself or kill myself that is the question.
 Is it noble to exist in this hell hole for the benefit of others or ease my pain which I burden alone?
 To sleep, to finally sleep and deaden these thoughts,
 Without the weight of waking up again,
