@@ -10,4 +10,4 @@ I’ve not known a day so shameful I want to run and hide
 I’ve not known a day I don’t live in fear of being exposed as a fake
 I’ve not known any different.
 So how can I feel any other way
-‘all I do is carry on with all I know
+All I do is carry on with all that I’ve not known
