@@ -1,0 +1,2 @@
+I have always known what happens after death. The mysteries of this universe are laid before you, and from a higher dimension, you have the language and capacity to understand them all.
+But what breaks your brain is being pulled back to life, knowing these answers exist and losing the language to explain them—worse still, doing this to a child.
