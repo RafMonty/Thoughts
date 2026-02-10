@@ -1,0 +1,1 @@
+Every closed system needs its brakes. Ours is the fear of death.
