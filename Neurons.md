@@ -1,0 +1,1 @@
+We are the neurons and communication is the synapses
