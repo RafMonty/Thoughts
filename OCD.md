@@ -1,0 +1,1 @@
+Let he without OCD line everything up in alphabetical order yet in reverse direction based on the number of letters, grouped by colour and subsets of shades
