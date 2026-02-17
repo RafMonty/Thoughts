@@ -1,0 +1,1 @@
+As a child, I would stare at the bitumen on the road, and it would seemingly be growing. I hypothesised that I must be growing at the same rate, and in turn, everything must be, but I weigh the same, so I must be expanding like a balloon, like everything else.
