@@ -1,3 +1,3 @@
 You have an okay day, then one small thing.
-A seemingly insignificant thing
-reminds you of your lack of worth.
+A seemingly insignificant memory
+reminds you of your complete lack of worth.
