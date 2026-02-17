@@ -1,0 +1,1 @@
+Living with a mental illness is like being in an abusive relationship with yourself.
