@@ -1,0 +1,1 @@
+ Why do we not mourn our preexistence? As we do our deaths? They are essentially the same. I was not. I was. I am not. Death is merely the book end that matches pre-birth..
