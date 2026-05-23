@@ -1,0 +1,2 @@
+They say when you die, your whole life flashes before you, every mistake playing out one last time. 
+I must be stuck in some kind of death loop, because every minute of every waking hour, my life and its bad decisions I’ve made and their consequences race across my brain on repeat.
