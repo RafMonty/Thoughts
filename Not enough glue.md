@@ -1,0 +1,1 @@
+She would sometimes put on her psychologist hat and poke me with her questions trying to fix me. After awhile she would realise that there are too many pieces and not enough glue.
